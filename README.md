@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Simba987
+- 👀 I’m interested in ...web development
+- 🌱 I’m currently learning ...html
+- 💞️ I’m looking to collaborate on ...I ain't
+- 📫 How to reach me ...email-Srayyt2@gmail.com
